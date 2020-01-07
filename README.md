@@ -1,2 +1,5 @@
 # Niver_em_dose_Tripla.github.io
-Olá!!!! Yris, Catharina e Thiago estão fazendo aniversário neste mês e esperam pela presença de você. Venha fazer parte dessa comemoração!
+Olá!!!! 
+Yris, Catharina e Thiago estão fazendo aniversário neste mês e estão contando com a sua presença. 
+Venha comemorar com a gente!!!
+Contamos com a sua presença.
